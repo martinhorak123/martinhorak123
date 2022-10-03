@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...martinhorakfkmb@seznam.cz
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...i like football
+- I am football player of FK Mladá Boleslav
+- I am also a student of Střední průmyslová škola Mladá Boleslav
+- My field in school is IT
+- If you want reach me my email is - martinhorakfkmb@seznam.cz
+- social media - instagram - @horaak_martin
+- 
+- 
+- 
 -->
